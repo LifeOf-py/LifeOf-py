@@ -7,7 +7,7 @@ My journey in Analytics started as a Decision Scientist at MuSigma (Bangalore) w
 
 Post that, I was working at Walmart as a Senior Data Analyst for 1.5 years where my role revolved around recommending in-demand items to sellers to onboard on walmart.com, using different customer demand signals. 
 
-_Fun Fact - In case you purchased an item from Walmart in the last couple of years, there is a high chance that item was recommended by me! _
+_Fun Fact - In case you purchased an item from Walmart in the last couple of years, there is a high chance that item was recommended by me!_
 
 👨‍💼: Interested in Data Science related roles
 
