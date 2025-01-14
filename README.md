@@ -13,7 +13,7 @@ _Fun Fact - In case you purchased an item from Walmart in the last couple of yea
 
 📧: sing1329@umn.edu
 
-🤝: (LinkedIn)[https://www.linkedin.com/in/singh-mayank/]
+🤝: [LinkedIn](https://www.linkedin.com/in/singh-mayank/)
 
 🥷: Always chasing 11.2 km/s!
 
