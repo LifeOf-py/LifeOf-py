@@ -17,5 +17,3 @@ _Fun Fact - In case you purchased an item from Walmart in the last couple of yea
 
 🥷: Always chasing 11.2 km/s!
 
- 
--->
