@@ -8,6 +8,7 @@ Post that, I was working at Walmart as a Senior Data Analyst for 1.5 years where
 
 _Fun Fact - In case you purchased an item from Walmart in the last couple of years, there is a high chance that item was recommended by me!_
 
+_________________________________________________________________________________________________________________
 
 **Let's Connect!**
 
