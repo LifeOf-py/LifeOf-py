@@ -9,12 +9,21 @@ Post that, I was working at Walmart as a Senior Data Analyst for 1.5 years where
 _Fun Fact - In case you purchased an item from Walmart in the last couple of years, there is a high chance that item was recommended by me!_
 
 _________________________________________________________________________________________________________________
+**What I bring to the table?**
 
+_Speed, Spearheading & Strategic Thinking_
+
+_________________________________________________________________________________________________________________
 **Let's Connect!**
 
 📧: sing1329@umn.edu
 
 🤝: [LinkedIn](https://www.linkedin.com/in/singh-mayank/)
+
+_________________________________________________________________________________________________________________
+**Motivation:**
+
+🏎️: Porsche 911 GT3 RS
 
 🥷: Always chasing 11.2 km/s!
 
